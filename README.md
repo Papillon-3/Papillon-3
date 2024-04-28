@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yab'er
-- 👀 I’m interested in HTML coding, French, Genshin, Wriothsley
+- 👀 I’m interested in HTML coding, French, hsr, Wriothsley & Aventurine
 - 🌱 I’m currently learning HTML and French
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me feniksler874@gmail.com
